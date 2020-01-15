@@ -1,0 +1,2 @@
+# farouk
+study
